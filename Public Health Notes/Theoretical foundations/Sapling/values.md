@@ -1,0 +1,1 @@
+Enduring [[belief]]s with a specific mode of conduct or end state of behavior that is preferable. Proceed after [[attitude]]s.

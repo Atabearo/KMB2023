@@ -1,0 +1,2 @@
+- [[Complex ions]] are stable, so they will decrease K$_s$$_p$ bc K$_p$ (formation of complex ions) is very high
+- Common ion -- causes disruption, increase solubility and makes precipitate 
