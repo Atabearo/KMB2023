@@ -1,3 +1,0 @@
-Self-efficacy is the sense that an individual has agency and power to effect a [[behavior]] change. Present across multiple models: a keystone in the [[SCT-social cognitive theory]] and explicit construct of the [[Health Belief Model]] and [[TTM-Transtheoretical Model]].
-
-In [[SCT-social cognitive theory]], Bandura (1986) described the 4 sources of self-efficacy to be *enactive attainment* (mastering the skill), *vicarious experience*, *verbal persuasion/encouragement*, and *physiological state* (feelings and emotions about change, or [[]]).

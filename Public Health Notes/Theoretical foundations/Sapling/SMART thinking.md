@@ -1,1 +1,0 @@
-For [[Prioritizing Goals]] for either yourself or an intervention! Specific, Measurable, Actionable, Reasonable, Timely.

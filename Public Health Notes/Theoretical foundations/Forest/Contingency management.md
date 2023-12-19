@@ -1,1 +1,0 @@
-+/- reinforcement ([[reinforcing factors]]) for engaging in certain behaviors.

@@ -1,1 +1,0 @@
-factors that come before the individual (genetics, disposition, history, temperament).

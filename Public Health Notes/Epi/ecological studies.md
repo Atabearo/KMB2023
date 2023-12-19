@@ -1,8 +1,0 @@
-- unit is a [[group-level factor]] rather than the individual
-- Pros and cons
-	- Pros
-		- Inexpensive, fast = good for early stage of knowledge
-		- Wider range of exposures
-	- Cons
-		- Cannot effectively adjust for confounding
-		- ecological fallacy: data is aggregated, so there is no real link between exposure & disease
