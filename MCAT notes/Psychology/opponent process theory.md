@@ -1,2 +1,0 @@
-- related to addiction
-- persistent use to get initial pleasurable effects and counter bad effects

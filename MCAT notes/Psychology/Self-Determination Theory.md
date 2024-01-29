@@ -1,2 +1,0 @@
-- emph intrinsic motivation and important of human growth tendency and innate needs
-- focus is on autonomy/competence

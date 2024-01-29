@@ -1,1 +1,0 @@
-b$_p$ elevation and f$_p$ depression
