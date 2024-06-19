@@ -1,5 +1,2 @@
-Any given worldview or orientation falls under the pursuit of a Platonic ideal: the Good, the True, or the Beautiful. 
+The Good is the "most Good" conceived as a standard. To be one in pursuit of the Good means that Goodness is the most important value (see [[pursuit of a Platonic ideal]]).
 
-To be perfectly stereotypical about it, scientists are likely to have a pursuit towards Truth, artists towards the Beautiful, and humanitarians towards the Good. 
-
-To flip "the Good" in a differeNietzsche was  
