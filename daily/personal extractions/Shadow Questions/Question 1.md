@@ -1,0 +1,13 @@
+# Do you struggle with showing yourself compassion? How does showing yourself compassion make you feel?
+
+> *to suffer with, in order to empathize with the suffering of another...*
+> - Pope Francis 
+> *sympathetic pity and concern for the sufferings or misfortunes of others.*
+> - New Ox American Dictionary
+
+I do not empathize with my own sufferings, rather I believe my sufferings to be below the threshold for empathy (at least, towards myself). I see myself withered up, wallowing, dithering around and I say, "that is really sad. I feel bad for you. Don't you want to change?". While I would never act with overt harshness to anyone in this condition, I would understand that for others, they are in a difficult place and change is hard work; therefore, they need resources and their own capacity to change. I see myself, knowing I have what it takes to change, but I do not suffer with myself. I am not present with myself, so I cannot take in the suffering myself.
+
+The last time I showed compassion in response to my own sufferings... it's hard to name an event. I think every time I pick myself up off the ground and do something, that is an act of being within my own suffering. Lately, I have been operating at the very minimum amount of energy it takes to be alive and getting by. 
+	Journaling may be an act of compassion towards myself. I see that is suffering in myself, which is why making a list of "how to live well" and processing my the parts of me consumed by doubt and self-hatred is saying "look, I believe in you, I know you're suffering and it's hard right now. But I am with you, and we are preparing you for a future". A future where I can start taking these heavy bricks I carry everyday and see the castle I've been building the whole time.
+
+Showing myself compassion makes me feel like I am not so worthless. It makes me feel like I can be exactly who I want to be: that I can say I can talk about interesting things, that I can enjoy doing the things I love, that I can challenge myself and become a person I am proud of, totally and completely. I am not proud right now of the way I have been living for the past month, and I thank my family for keeping up my momentum in life. Showing myself compassion is like what Steph and Ethan did for me: empathizing with my struggles, and encouraging me that I can do it, and I am more than what I see in myself. Showing compassion for myself makes me feel like a whole person, one has a bright shining face and a darker shadow, yet all of her is loved. If I show myself compassion, I have the life in me to live intently; with that, I can work towards anything. 

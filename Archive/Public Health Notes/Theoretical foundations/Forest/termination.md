@@ -1,0 +1,1 @@
+Full [[self efficacy]] over behavior change, no temptation to fall back into unhealthy behavior. This is a way to measure the success of a [[TTM-Transtheoretical Model]] based program.

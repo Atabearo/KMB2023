@@ -1,0 +1,4 @@
+- Based on Jungian psychology, the Shadow is the side of us that the ego does not identify with, the "darker" side of our personality.
+	- It is the archetype opposite the Persona.
+	- Traits are perceived as negative (ego has hidden them for a reason), but are not necessarily so
+		- Ex: Shadow traits may be introverted, timid, and fantasizing. Some children may have been taught that we should be outgoing, impulsive, and rational, and therefore traits we should bury.

@@ -1,26 +1,16 @@
 
 ---
-###  📅 Daily Questions 
-
-##### 💛 What good shall I do today?
-- 
-##### 💌 I am grateful for...
-- 
-##### 🤾‍♀️ What is on [[the grind]] today?
- - [ ]  
-##### 🧱The grind contributes to:
-- 
-##### 💭 What are the words do you need to hear?
-- 
-##### ⌛What do you want to take with you into the future?
-- 
-##### 🪨 Is there anything you need to get off your chest?
-- 
-##### 🏃‍♂️Rundown:
+### 📝 How was the day, whatchu thinking:
 
 
 ---
-# 📝 Else on the mind:
+## [[Daily Examen]]
+### Current WIPs
+[[Desires of the Heart (7-29)]]
+[[Things I want for Fall semester (list; 7-27)]]
+[[Coping belt (7-30)]]
+[[long-lasting, genuine relationships (7-30)]]
+
 
 ---
 

@@ -1,0 +1,1 @@
+Factors that facilitate/impede behavior. Social influence example: your friends can encourage you to do better in school or to skip school. See [[cues to action]] for positive reinforcement.

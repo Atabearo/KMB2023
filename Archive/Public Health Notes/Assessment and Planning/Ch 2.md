@@ -1,0 +1,1 @@
+Purpose of PRECEDE PROCEED is assessment, planning, and evaluation

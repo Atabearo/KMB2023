@@ -1,5 +1,5 @@
 
-It is a good thing to have moments to [[reevaluate my beliefs and principles]]. My worldview interacts with Catholic learning and practice dynamically, leading to my personal expression of faith. 
+It is a good thing to have moments to [[reevaluate my beliefs and principles]]. My worldview interacts with Catholic learning and practice dynamically, leading to [[Jaime's expression of faith]]. 
 
 - covert Catholicism (actions speak louder than words)
 - listening is important
@@ -9,6 +9,6 @@ It is a good thing to have moments to [[reevaluate my beliefs and principles]]. 
 - It is possible, perhaps even likely, that all are saved as an act of mercy and intercession as family
 
 Evaluate my actions:
-- [[Why public health]]?
+- 
 
 

@@ -1,0 +1,1 @@
+the measure of how likely a community is to make a change. Collective [[self efficacy]].
