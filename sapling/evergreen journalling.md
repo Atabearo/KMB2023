@@ -1,0 +1,4 @@
+
+The purpose of this form of journaling is to be more connected in my thinking. Insights are a unique expression of where I have been, and key to their generation is the pulling together of past ideas. Can insights be facilitated?
+
+I believe this may be possible with this form of journalling. If [[ideas change lives]], then I can change my life by putting together all that I know to find ways to live better. I have read the self-help books. I have learned much about health. There is still so much I don't know; if I can note what I have learned before and synthesize it with the information I take in, I may offer my own unique insights, experiences, and lessons to the world. [[novel solutions come from insights]].

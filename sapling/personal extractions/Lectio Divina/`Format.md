@@ -1,0 +1,7 @@
+##### Meditatio
+
+##### Oratio
+
+##### Contemplatio
+
+##### Act

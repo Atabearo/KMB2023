@@ -1,0 +1,1 @@
+Insight generation is the pulling previous ideas ([[ideas change lives]]), solutions, and wisdom together to create a novel solution. 
