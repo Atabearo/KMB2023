@@ -1,0 +1,4 @@
+- Number of facilities in an area
+	- Could use a cloropleth map!
+- Often described as a ratio
+	- "This is where there is a high/low provider:patient ratio"

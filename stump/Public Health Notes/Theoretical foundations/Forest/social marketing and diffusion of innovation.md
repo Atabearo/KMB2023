@@ -1,0 +1,1 @@
+[[social marketing]] and [[diffusion of innovation]]

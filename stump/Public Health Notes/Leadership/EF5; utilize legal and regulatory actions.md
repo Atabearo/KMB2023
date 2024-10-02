@@ -1,1 +1,1 @@
-to influence healthy norms, respond to health threats, and enforce standards for health and safety ([[health promotion]]).
+use of the various levels of [[government]] to influence healthy norms, respond to health threats, and enforce standards for health and safety ([[health promotion]]).

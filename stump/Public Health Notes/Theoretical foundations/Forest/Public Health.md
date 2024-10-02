@@ -2,10 +2,6 @@
 
 There are [[Health Education Models]] and [[Public Health Theories]] informing public health initiatives. 
 
-(DUNNO WHERE TO PUT THIS-- OTHER CONCEPTS IN PUBLIC HEALTH):
-[[social marketing]] and [[diffusion of innovation]]. 
-
-
 Here is a [[Brief History of Public Health]] figures.
 
 
