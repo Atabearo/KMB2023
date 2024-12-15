@@ -3,7 +3,7 @@ Just doing it because I want to? Not out of fear, shame, or guilt, but out of my
 
 I want to start by trusting myself, with [[telling the truth]] to myself and following through with what I say.
 
-Yet I cannot trust myself to act, trust my friends above my distorted perceptions, trust God that I will be OK. I have a great need for the virtue of [[Christian humility]].
+At the moment I cannot trust myself to act, trust my friends above my distorted perceptions, trust God that I will be OK. I have a great need for the virtue of [[christian humility]].
 
 ---
 

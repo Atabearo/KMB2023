@@ -2,40 +2,38 @@
 11/11-12/2: How do I want to live?
 - [ ] "Love the Lord, your God..."
 	- [x] keep praying 
-	- [x] get finances in order
-		- [ ] use MoneyNote (because it doesn't take into account Venmo)
 	- [x] get cash
 	- [ ] give alms ($5/week)
-		- [ ] $3 to the Church I attend
+		- [x] $3 to the Church I attend
 		- [ ] $2 discretionary to my charity of choice
-	- [ ] make Sunday special, honor day of rest
-		- [ ] call friends!!
-		- [ ] And I would love to take time to reflect
 - [ ] "it comes down to family and health"
 	- [ ] family
 		- [ ] send out Christmas gift list
-		- [ ] respond to sister
+			- [ ] healthy gamer guide is on it
 		- [ ] pray for family
 		- [x] call brother
 		- [ ] call parents
 			- [x] call Dad
 	- [ ] health
 		- [x] running in the mornings (3 days a week)
-		- [ ] consider healthy gamer guide
+		- [ ] get finances in order
+		- [ ] use MoneyNote (because it doesn't take into account Venmo)
 - [ ] "Love your neighbor as yourself"
 	- [x] being present where I am
 - [ ] Trust
 	- [ ] myself: [[telling the truth]]
 		- [ ] live with integrity
 		- [x] speak the truth
-	- [x] in God: [[Christian humility]]
+	- [x] in God: [[christian humility]]
 	- [ ] in the affections of my friends
 		- [x] believe the best in them
 
 12/2 - (tentative brainstorm)
 - [ ] Eminent Good Works to Overcome Our Fallen Nature: prayer, almsgiving, and fasting!
 	- [ ] *Fast* from something with the intent of growing closer to God
-- [ ] 
+- [ ] make Sunday special, honor day of rest
+	- [ ] call friends!!
+	- [ ] And I would love to take time to reflect
 
 ---
 
