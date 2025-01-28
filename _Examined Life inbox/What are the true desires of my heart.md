@@ -1,0 +1,2 @@
+
+My greatest desire is understanding. I wish to be understood and understand others, which is why much of my thoughts are concerned with impression, and my concerns towards expression and communication. I want to know others and their flourishing, I want to know what we can learn from each other and the opportunities in our encounter. I suffer when these intentions only are known in my heart.

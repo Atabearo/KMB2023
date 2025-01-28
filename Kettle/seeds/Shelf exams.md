@@ -1,0 +1,2 @@
+- NBME exams (not req to be licensed)
+- Taken at end of each clinical rotation (M2/M3) designed to test application of clinical knowledge

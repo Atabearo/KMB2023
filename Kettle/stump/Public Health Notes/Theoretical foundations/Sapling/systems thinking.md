@@ -1,4 +1,4 @@
-A unique [[Evaluation]] approach of problems within a wider, dynamic system. Systems thinking pursues the relationships and [[behavior]] among elements characterizing the entire systems. [[Public Health]] may study the [[health care system]]. Mapped with [[causal loop diagrams]].
+A unique [[Evaluation]] approach of problems within a wider, dynamic system. Systems thinking pursues the relationships and [[behavior]] among elements characterizing the entire systems. [[KMB2023/Kettle/stump/Public Health Notes/Theoretical foundations/Forest/Public Health]] may study the [[health care system]]. Mapped with [[causal loop diagrams]].
 
 General systems have these characteristics in common:
 1. *self-organizing* and *nonlinear* means that the system and its interactions are **complex**.
