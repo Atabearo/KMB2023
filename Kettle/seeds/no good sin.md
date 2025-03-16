@@ -1,0 +1,2 @@
+
+Some sins may seem to benefit you or hurt no one, but there is no victimless sin. When a person sins, it distorts our perceptions ([[our common enemy in deception]]), disfigures the one who sins. Sin breaks relationships.
