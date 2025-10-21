@@ -1,0 +1,1 @@
+What do you seek? In seeking the true, good, beauty of the world is what we all long for but these things come to completion, to ONE in Christ. See that the TGB are a 2D triangles that come to point upwards when put together: LOVE

@@ -1,4 +1,0 @@
-
-There is a component of recognition that I have nothing save for what God has given to me ([[it's all cards]]). Just as he is generous to me and blessed me within my life, it is justice to be generous in my dealings and to [[steward accordingly]]. It comes down to love ([[love is sacrifice]]); it is foolish to let the illusion of possessive ownership ([[our common enemy in deception]]) break my relationship with others. 
-
-What is it that I desire at the end of my life, that I desire in my life today? When I ask the One who has the power to bestow me anything, at the end of the day I offer my desires for the world's goods ([[a foundationally good reality]]) so that God can purify my good desires into a trust in his generosity and his good plans for me ([[to be satisfied with God himself]]).

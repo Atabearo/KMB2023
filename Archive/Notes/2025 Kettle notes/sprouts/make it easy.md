@@ -1,0 +1,1 @@
+As creatures with limited time and resources, we will not want to do something unless the action is deemed worth the cost ([[laziness is efficiency]]). Decreasing the cost (the action is simple, inexpensive, aligned to processes in place)--or making it easy as possible--is an effective control to enacting habitual change.

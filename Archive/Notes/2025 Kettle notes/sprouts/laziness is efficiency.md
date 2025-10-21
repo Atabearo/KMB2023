@@ -1,0 +1,3 @@
+As a species, we want to conserve energy. In an environment where there is limited resources, saving energy whenever possible is a good feature when the future is uncertain. If we only do what is deemed absolutely necessary with as little effort as possible, than that is peak efficiency.
+
+ Unfortunately, this does look like laziness and procrastination when the majority of our threats are no longer immediately life-threatening.

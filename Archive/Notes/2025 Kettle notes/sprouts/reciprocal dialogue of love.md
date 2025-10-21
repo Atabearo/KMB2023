@@ -1,0 +1,2 @@
+
+Prayer is [[welcoming God's presence]]. When it comes to God, who gives all things and loves totally, prayer is welcoming the presence of the One who wants nothing more than give us grace ([[bounds of disposition]]). 

@@ -1,0 +1,2 @@
+
+Grace is a gift from God that, when received, transforms man to be more like God. Grace is offered in each moment ([[providence in abundance]]); when we respond to God's call, we open ourselves to grace. The more man's heart is aligned to God, the greater is the heart's capacity to receive grace ([[bounds of disposition]]). 

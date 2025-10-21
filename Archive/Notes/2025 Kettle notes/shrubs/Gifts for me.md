@@ -1,0 +1,4 @@
+- Food co-op shares (list of existing IL are linked in [[2025-W18]] 4/30: 
+	- https://www.sharedharvest.coop/become-an-owner/purchase-shares/
+- James Tissot Collection https://www.ebay.com/itm/256540501451?chn=ps&google_free_listing_action=view_item&gQT=1
+- Spice grinder

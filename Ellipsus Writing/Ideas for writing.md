@@ -1,0 +1,44 @@
+## Topical
+### Faith Writes
+- What I learned from 50 days of praying the entire Rosary (10/6)
+	- Trying it yourself
+		- Didn't finish the Rosary! Therese trust in God, that He is pleased with our efforts, like a child falling asleep talking with its mother. Our angel, the saints praying with us, finishes it. The merits and grace from even one Our Father or one Hail Mary said with faith. 
+	- I've done this before
+		- And it changed my desires, and I got the grace I prayed for (even if I am not stronger)
+		- Everything led me to live the Little Way and Offering to Divine Mercy even before I knew it
+- >> Why pray the Rosary?
+- >> Lectio Divina Rosary (10/6)
+	- Marrying Gospel meditation with powerful meditative prayer 
+	- Rosary = walking with Mary through Jesus' life and "Mysteries" of Jesus' life
+	- All of Jesus' life is worth drawing wisdom from, worth "pondering in the heart"
+	- Form
+		- Lectio: Read short passage from the Gospel.
+		- Meditatio: Reflect on where God has brought your attention, and listen to what God may be saying to you.
+		- Oratio: "I offer You, O Lord, this Mystery of the {event of Jesus' life}. I ask of thee, through this Mystery and through the intercession of Thy Blessed Mother, for {particular grace or spiritual gift}."
+		- Contemplatio: as you pray the Rosary, let your mind be at rest.
+
+## Discursive lines of thought that made the page
+- Marie has 2 cats and the applique of ghosts and pumpkins keeps a lady young at heart
+	- I learned that by trying to make strangers smile. *Talk to strangers*. It's worth it.
+- General appreciation for Catholic teaching on stewarding creation
+	- In spite of all human evil, *on a foundational level, creation is very good*; *Existence is good*, because God holds all things in being (in thought, actively sustained -- opposite of "clockmaker God" notion)
+- In recent news: Hallmark's "Adventures in Love and Birding" offends the birding community (10/11)
+	- In general, birders are always annoyed watching the inaccuracies of bird representation in movies (ex: wrong sounds for birds, not-native bird sounds to location)
+		- worst fumble, failing to capture excitement of spotting bird you wanted to see for a long time, anti-climatic
+		- imagining the birder watch party is hilarious
+	- this is how I felt reading "The Love Hypothesis" tbh -- this girl is *not* sound like she loves "doing science"
+- [ ] Thinking to make a **causal loop diagram** for the valuable things in life (10/10)
+	- preceded by thoughts on:
+		- importance of social health (social determinant with the weight of cigarettes) and relationships
+			- you can't make old friends
+			- [ ] asking Mattie and company to help me think through it, instead of making it by myself
+		- meditations on what is rich to God
+			- proverbs on stewarding relationships (cattle, wife, son, daughter, friends. see Sirach #:##)
+	- *life is fragile*, *time and attention are all we have*
+- Must be tough to raise an American kid, don't know how good they have it (10/6).
+	- *the importance of passing down stories and memories*, *generational memory is short*, *learn from past mistakes!* on a generational/societal scale
+	- Details
+		 - Ava from Poland, grew up in Communism
+		 - Sticks and stones vs a basement of toys, they're bored
+		 - Luxury to eat fruit
+		 - Missed the bus, can you pay for my Uber?

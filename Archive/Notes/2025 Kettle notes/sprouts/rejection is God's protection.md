@@ -1,0 +1,2 @@
+
+based in the reality of God's [[providence in abundance]], meaning that he gives in every moment exactly what one needs. Rejection, therefore, is the closing of a door not meant for us. This keeps room in our lives for an even better fit and specific vocation.

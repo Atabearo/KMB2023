@@ -1,0 +1,2 @@
+
+Two kids-- as of 2025, the older one is in 8th grade (robotics, tennis, dresses in girlboss costumes). Currently developing an affinity for ebooks (issue of concern). and the younger is (into weightlifting). They go to private schools. Dr. Y made their costumes and does in fact restrict their screen time.

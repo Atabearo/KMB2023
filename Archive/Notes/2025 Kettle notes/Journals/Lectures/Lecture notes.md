@@ -1,0 +1,77 @@
+
+- "everyone has their own perspectives on what to do with the money allocated for water treatment, and some perspectives are 'take the money and put it in their pocket'"
+- taking "time" out of the equation-- I encourage you to engage in thought experiments
+- "air food and water are not problematic for people"
+	- water (drinking), prioritize energy to cleaning water
+- Syria grew crops they weren't supposed to and basically repeated the Dust Bowl of the U.S.
+	- We can do things, but we got to think about how they affect systems. Like 
+	- Using water--which is a basic human right--as a weapon
+- "The Colorado River no longer flowers into the Gulf of California. Maybe Mexico will start calling it the Gulf of Mexico!...All we can do is laugh at the craziness in the world in these times, right?... We can continue to improve ourselves and our understanding. You can do what you can do."
+- "We can ignore Grace Mission and the problems they reveal, and people will get hurt. *Ignoring environmental health threats does not make sense*."
+- "somebody lives downstream"--if your economic success pollutes the town next over
+	- WWTP 
+	- "If gains in efficiency"
+***Economic perspective on pollution*** (why are we deregulating environmental policy)
+- Economists often view water pollution as fund or stock pollution
+	- Fund pollutants are those assimilated by the environment
+	- Stock pollutants are those that accumulate in the environment
+- Economic goal in capitalistic system is market efficiency
+- Argument: Command and control regulatory actions are not efficient
+- "Public health is the business of keeping society functioning"! Have you guys thought about that? Public health is industry's best friend!
+- Rumsfeld: "There are known knowns..." [Link](https://www.youtube.com/watch?v=REWeBzGuzCc)
+	- Triangulate == "top three most likely reasons, and think through them" #criticalthinkingtool 
+	- There are threats that we know about! E.Coli. There are threats that we are not sure about; there are chemicals pollutants that we know about but still need to know about...
+- Safe is an acceptable degree of risk
+- "Know the assumptions". The indicator approach; we can't measure everything, and we can't even measure all the known knowns! 
+	- Knowing that the indicator only measures residual chlorine, but limitations-- is this enough to keep safe from pathogens?
+	- Turbidity doesn't tell you what makes the water turbid
+- *Contaminant Candidate List (CCL)*: Contaminants that are not monitored by the EPA but potential contaminants identified by the National Science Academy
+	- "They tell you how they do it! Apolitical. It's documented. None of this, 'just trust me,' stuff!"
+- Consumer Confidence Reports (if EPA deregulated, then they don't have to send these to the local communities-- what problems they detected, and what they are doing to solve it. This is being done by law. How do we know that this shrimp is safe to eat? How do we know this water is safe to drink?
+	- Know what exceeds in each category and by law, are sent to consumers. That sounds like equity." 
+	- "Superior Public Water System")
+- "I am going to go get a drink of water. And I know it is going to be safe because Waco does a great job in the 4 stages of water treatment, and they test indicators every day"
+- Four elements of the EPA water quality based approach in the U.S.
+	1. Designated used of water body (recreation, water supply, aquatic life, agriculture)
+	2. WQC to protect designated used (numeric *and* narrative components)
+		Narrative components: even if it's not a "known known", if there is a contaminant we are not addressing we need to address it
+	3. Antidegradation policy to maintain and protect existing used
+		- You can't change your mind. "Well... if I build a plant upstream and it dumps a bunch of pollutants in the water but... I just gave 250 jobs." There are already presuppositions in place. "The idea is that the water, doesn't belong to anyone."
+		- That's a philosophical question. Different countries have different systems. All I care about is, are they based on the best-available evidence. (I don't really care about the system )
+		- "Have the apolitical objective information put forward."
+		- "Do you think it's safe to eat there? 'Well Bryan, you know what I'm going to say: it's only as safe as it's last inspection.'"
+			- The inspection is the indicator
+	4. Policies addressing implementation issues
+- "This... was based on decades If you hear someone start talking about something they don't know what they are talking about? Like 'mrgherhehrehgheh'... just know "
+	- *Ignoring environmental health threats does not make sense*."
+	- If you didn't have these kinds of (effluent discharge) assays (which ) (which is really beneficial for DOW chemical! So they don't have to spend a ton of money cleaning the water! What about the farmers? What if they pull )
+	- They developed the science to implement policies. And they do it in a way that's fair, and balanced. This is why people in industry are speaking about this. This is why ACS is concerned about this. This is why Society of Toxicology wants 
+	- AAAS -- objective apolitical science. Good for people, good for business. If we don't have sound science, how will we function? We can't. 
+	- Objective! Apolitical! Evidence-based.
+	- Indicators tell us some things. They don't tell us everything.
+	- How much money do taxpayers pay to be able to swim in the Brazos? To swim a triathalon? To eat the shrimp from the Gulf of Mexico? How do we know blueberry is safe to eat? HACCP helps us answer question.
+		- Listen guys, it comes down to simple things.
+- 303(d) list is the shorthand for the list of impaired waters.
+	- Prioritized list with limited resources
+	- Bad water list (303d). This is one of the only times I have been cursed out for my work. Can I tell you about the time I was cursed out of my work?
+		- Pulls out receipts == backpedals a bit == we were intentionally not testing the water because we knew it would end on the bad water list! 
+		- Put head in sand, ignore environmental health risk. Does not make sense.
+	- TMDL (how the watershed is managed): go upstream, 
+		- Copper issue: In a study, Shell identified that 50% was their fault. The other 50% was from everywhere else. Why would Shell be funding a study that finds that half of it is their fault? Because they don't want to pay for it! Why should I pay for 50% that is not my problem? Makes sense for company.
+		- Shell has been really good in recent years about 
+- "you only find what you are looking for" (Tom Waller, 1999)
+- Public health keeps society functioning. For you, the business, for you, the local government (*and **that is** the value proposition that we bring to the table*)
+- Sewage/wastewater epidemiology to detect cocaine use, COVID-19, measles 
+	- [highest cocaine use detected](https://www.youtube.com/watch?v=NpqurXRUqvY)
+	- Inform targeted testing <-- used this to inform university testing strategy 
+	- this is a population health measure
+- National takeback day
+	- Instead of putting them down drain, 
+	- Waste management approach to protect water quality and protect puvlic health
+- Life Cycle Assessment == cradle to grave
+	- When you don't think about closing the entire loop of products
+	- The question was "too many drugs, question mark"
+		- When you have all the lawmakers, companies, wastewater management
+	- With paper == keep the disease triad in mind
+	- What?
+	- ^^ WHY? HOW? WHO? WHERE? WHEN? #criticalthinkingtool 
