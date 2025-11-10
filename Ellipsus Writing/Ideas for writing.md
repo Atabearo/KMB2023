@@ -17,24 +17,48 @@
 		- Oratio: "I offer You, O Lord, this Mystery of the {event of Jesus' life}. I ask of thee, through this Mystery and through the intercession of Thy Blessed Mother, for {particular grace or spiritual gift}."
 		- Contemplatio: as you pray the Rosary, let your mind be at rest.
 
+## Self-persuasive reflections
+- [[On friendship and nurturing the ties God has called me to]]
+	- [ ] Luis talking with Ushna?
+	- [ ] What changed?
 ## Discursive lines of thought that made the page
-- Marie has 2 cats and the applique of ghosts and pumpkins keeps a lady young at heart
-	- I learned that by trying to make strangers smile. *Talk to strangers*. It's worth it.
-- General appreciation for Catholic teaching on stewarding creation
-	- In spite of all human evil, *on a foundational level, creation is very good*; *Existence is good*, because God holds all things in being (in thought, actively sustained -- opposite of "clockmaker God" notion)
-- In recent news: Hallmark's "Adventures in Love and Birding" offends the birding community (10/11)
-	- In general, birders are always annoyed watching the inaccuracies of bird representation in movies (ex: wrong sounds for birds, not-native bird sounds to location)
-		- worst fumble, failing to capture excitement of spotting bird you wanted to see for a long time, anti-climatic
-		- imagining the birder watch party is hilarious
-	- this is how I felt reading "The Love Hypothesis" tbh -- this girl is *not* sound like she loves "doing science"
-- [ ] Thinking to make a **causal loop diagram** for the valuable things in life (10/10)
-	- preceded by thoughts on:
+- Thinking to make a **causal loop diagram** for the valuable things in life 
+	- [ ] 🔦 survey: will my other Christians have the same conclusions? 🔦 (10/21)
+		- yes, bc when we break it down we get the same essential Gospel message
+		- but no, bc unique individuals, unique relationships === different spiritualities 
+			- Little and weak, but God loves His little ones
+			- A pitiful, broken bird with the heart of an eagle; the Little Way 
+				- Marked by poverty of soul. Emph on faith as trust, complete dependence
+				- God calls us to love as he did. Always be a weak, pitiful lover, so to love God as he loves me I would need to borrow His merciful love to do so 
+					- Way of a child
+					- Where your treasure is, there your heart shall be. That your actions merit grace on earth and a treasure that does not decay in heaven
+					- Like the Levites, who had not inheritance but God (empty-handed into heaven)
+				- Do little things with extraordinary love; it may look like nothing and often feel like nothing, but believe what God has said nonetheless (the "eyes of faith")
+					- We walk among God's beloved, taking care of our ordinary relationships and duties is a transformative stewardship, that prayer transforms and blesses, every morning is a glorious opportunity to save the world, God holds you in existence with his love
+						- Way of darkness,
+				- Taking on God's justice to bless others and console Jesus, or taking on the excess mercy of God to console Him
+	- preceded by thoughts on (10/10):
 		- importance of social health (social determinant with the weight of cigarettes) and relationships
 			- you can't make old friends
 			- [ ] asking Mattie and company to help me think through it, instead of making it by myself
 		- meditations on what is rich to God
 			- proverbs on stewarding relationships (cattle, wife, son, daughter, friends. see Sirach #:##)
 	- *life is fragile*, *time and attention are all we have*
+- How rivalry is the most (intense form of encouragement, contending to best another and becoming our best; 10/21)
+	- like "common goals" (writing group) but with stakes, driven to keep going
+- What I learned from writing group
+	- an essay of epic proportions and tenuous logic dressed in haute fashion (like "milk and cereal"), I wouldn't have written
+		- learned to write something that I know about, something that draws from my experience or what I am pursuing
+		- how to write a narrative
+- [x] Marie has 2 cats and the applique of ghosts and pumpkins keeps a lady young at heart
+	- I learned that by trying to make strangers smile. *Talk to strangers*. It's worth it.
+- General appreciation for Catholic teaching on stewarding creation
+	- In spite of all human evil, *on a foundational level, creation is very good*; *Existence is good*, because God holds all things in being (in thought, actively sustained -- opposite of "clockmaker God" notion)
+- [x] In recent news: Hallmark's "Adventures in Love and Birding" offends the birding community (10/11)
+	- In general, birders are always annoyed watching the inaccuracies of bird representation in movies (ex: wrong sounds for birds, not-native bird sounds to location)
+		- worst fumble, failing to capture excitement of spotting bird you wanted to see for a long time, anti-climatic
+		- imagining the birder watch party is hilarious
+	- this is how I felt reading "The Love Hypothesis" tbh -- this girl is *not* sound like she loves "doing science"
 - Must be tough to raise an American kid, don't know how good they have it (10/6).
 	- *the importance of passing down stories and memories*, *generational memory is short*, *learn from past mistakes!* on a generational/societal scale
 	- Details
