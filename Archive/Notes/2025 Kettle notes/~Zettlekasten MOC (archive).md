@@ -12,7 +12,7 @@ If it is to **broken down** into atoms and remembered in piecemeal, it belongs i
 If it is better consumed as a **whole**, such as a narrative or timeline, it belongs in **Journals**. 
 
 # Kettle MOCs
-#### [[Public Health and Environmental Health MOC]]
+#### [[Public Health MOC]]
 #### [[Foundations and Principles MOC]]
 #### [[Processes and Change MOC]]
 #### [[Spirituality MOC]]

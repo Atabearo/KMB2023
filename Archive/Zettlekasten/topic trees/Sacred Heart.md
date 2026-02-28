@@ -1,0 +1,3 @@
+### God's love for us, made visible
+Remembering that the King of the Universe(!) loves me
+	*[[structures]] and signs.* Jesus is the living sign of God's love, and the image of the invisible, eternal God that sustains all that is in the world and binds it together.  I only need to take a look at His Heart--His Sacred, Eucharistic, most pure Heart--to know that His singular burning desire is for each of us to be with Him, to bring us back to His Father's house. 

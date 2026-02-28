@@ -19,7 +19,7 @@ Where have I ended up?
 - The process of studying for and getting a 513 on my MCAT
 - Driving to Houston-Waco by myself
 
-### 2024 Resolutions
+### 2025 Resolutions
 - Learn how to teach others
 - Refine habits to improve prayer and meditation (=become a good Christian and calm person)
 - Keep smaller habits (minimums...)

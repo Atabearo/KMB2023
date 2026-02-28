@@ -1,0 +1,1 @@
+Lord, enlighten my mind, and guide my hands in this hour. Help me to meditate on what is valuable to You and aligns my heart to Your eternal Word and Your holy will, which is Love and Mercy itself.

@@ -1,0 +1,14 @@
+*writing that I actually want to do.*
+
+#### Aspiration
+I wonder how much I could build if I digested my thoughts by writing. What directions, trends, and patterns emerge over the course of time! My thoughts could find rest in the scaffolding of paragraphs and stories instead of blowing like the wind through my head. Brick by brick. We always have to carry a daily load, here we can create something that stands on its own and takes a shape under my hands inspired by the Spirit within me. Could we build a home, a shared endeavor by me and my Lord? Could we build castles, with spires that peek over the clouds? In any case, it will certainly be my expression. That will be worthwhile enough for me to express with clarity and build a habit of thought.
+#### Drive
+It seems my future is tangled up in writing, expression, and communication, even before my career begins. This brings me dread, where I would naturally feel driven to improve and share. The dread is a result of a year of writing and writing again to rejection after rejection. I am asked why I didn't apply to the WHO, and it honestly feels so pointless to write another application. It never feels like enough.[^1] It doesn't matter if I submit 2 or 20. It's all the same. This is learning to be helpless, to write nothing at all. Because reality is not without hope, I must keep writing. I know in my soul there is a path forward, and even if my brain lies, I *must* keep knocking incessantly. It's the right thing to do. It's the bulk of what I can do. So I want to write *more*. I hope this daily practice awakens some of the joy of writing I have shuttered throughout my application days. If I must write, I want to enjoy it at least sometimes and create something I find valuable.
+
+---
+## Endnotes: 
+- I feel better knowing that I can put a finger on what makes me so upset, it's feeling misunderstood in already tough position. I don't think my loved one intends to make me feel this way, but I may have the words to express it with compassion in the moment now.
+- Instead of crying and feeling down 100% of the time, I am feeling a lot more anger? Lord, I don't know if that's better. From hopelessness to hope, flares of reflexive temper to patience and compassion, Lord, grant me the grace to walk this path.  
+- Time: 53 minutes.
+
+[^1]: Q: "It never feels like enough! I hate being told to keep applying, applying, applying! It's all I can do, and because I haven't found anything yet I obviously haven't been applying myself enough. When will it be enough?" *How would you approach this with NVC?* When you tell me to "just apply", you make it sound like that I haven't sent anything. It makes it feel like nothing I do is enough, and getting rejected constantly makes it feel like it's not even worth it. Can you help me figure out a plan where I can do actionable good in a day? 

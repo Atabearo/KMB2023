@@ -1,0 +1,7 @@
+ I was reading my Q3-Q4 2024 journal, and was struck by the spiritual language I was using then. I was very open about asking for things from Jesus and addressing Mary as Mother, and I recited some old prayers I haven't seen in a while. For Advent, it was a simple "on the ... day of Advent, my true love said to me...", because I remember on the second day of "Waiting Well" by Fr. Mike that he prompted listeners to close our eyes and imagine Jesus speaking to us. What would he say? He calls to us, in words, impressions, in silence, all the time. What is Jesus trying to tell me?
+
+Recently when I have been praying, I am noticing the space in which I'm not impressed to "do" anything. Fr. Jacques would say that is the perfect time to rest in God. But... I don't know. This is one of those times where God is not immediately present to my senses, and it is the time for faith, for trusting love, that even then, "I AM". 
+
+I am paying attention, Lord. I wait on your call and trust you will let me know your will in a way that I understand, because I still have in me the makings for a prideful heart, a brutish hand, and inflexible mind. Though I am encouraged to think that you have worked on me over the year past. I do not perceive pride to be so forming of my perceptions, nor vanity in my actions towards others. I am, little by little, following you in your merciful way. I set my eyes on your Merciful Love, my friend, which flows from the Cross and makes itself known in every kindness and grace. 
+
+(15 minutes)

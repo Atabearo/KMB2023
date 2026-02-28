@@ -1,0 +1,4 @@
+- wedding anniversary may be 2/26/2026
+- fosters children? turning 50 this year (2026)
+- big into practicing Catholic traditions
+- wife is from India
